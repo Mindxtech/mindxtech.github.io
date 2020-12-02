@@ -1,0 +1,1 @@
+# mindxtech.github.io
